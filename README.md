@@ -1,1 +1,1 @@
-# Instant-Insight---rom-Headlines-to-Highlights-in-Seconds
+# Instant Insight-From Headlines to Highlights in Seconds
